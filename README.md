@@ -66,5 +66,5 @@
 
 ## 📞 Connect With Me
 
-[![Telegram](@kattiessii)]
-[![Email](ekkaterina29@mail]
+[![Telegram](ссылка скоро появится!)]
+[![Email](ссылка скоро появится!@mail]
